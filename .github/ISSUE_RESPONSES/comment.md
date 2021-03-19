@@ -1,4 +1,4 @@
-## Thank you!
+## Thank you! YEAH RIGHT!!!
 
 We appreciate your contribution to this project! Please be sure to read the **contributing guide** to learn how you can help make this project better!
 
